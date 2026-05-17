@@ -1,4 +1,4 @@
-# 
+# Personnalisé Vegas Pro pour PC extensions est le meilleur Vegas Pro pour PC extensions avec intégration du chat et enregistrement audio. Sécurisé, fiable et optimisé pour des
 
 
 
